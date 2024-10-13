@@ -1,2 +1,2 @@
 Joe Chen
-Education: Northeastern University (2024 - Present), Computer Science
+Education: Northeastern University, Computer Science, Expected Graduation: 2028
